@@ -9,8 +9,8 @@ Los invito a ***Nunca dejar de aprender.***
 
 ## Mis Habilidades:
 - 🔭 Autodidacta.
-- 🧑‍🦰 Liderazgo.
-- 👯 Trabajo en Equipo.
+- 🧗 Liderazgo.
+- 🤜 Trabajo en Equipo.
 - 🤔 Analitico.
 - 📫 Comparto el conocimiento.
 - 😄 Sociable.
